@@ -1,1 +1,1 @@
-# Các công nghệ lập trình hiện đại
+# CNLTHD-SGU-26-DCT122C4-3122411213-NguyenHuuTinh
